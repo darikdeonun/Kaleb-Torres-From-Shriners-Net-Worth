@@ -1,1 +1,4 @@
-# Kaleb-Torres-From-Shriners-Net-Worth
+# Kaleb Torres From Shriners Net Worth
+His financial condition in 2022 is still unknown. [kaleb torres from shriners net worth](https://aceofbusiness.com/kaleb-from-shriners-net-worth/) mainly makes money by appearing in commercials for the hospital, but he also appears in many YouTube videos, which help him make more money. Kaleb Torres is a Canadian boy born with osteogenesis imperfecta or brittle bone disease. This rare condition had made him undergo 11 surgeries, a total of which one of these surgeries happened when he was just 7 days old and broke his bones over 200 times.
+Kaleb Torres is ranked among the wealthiest kids due to his success as the Children’s Patient Ambassador at Shriners Hospitals and a social media influencer. Despite all challenges, he has inspired millions and other kids with health challenges like him.
+
